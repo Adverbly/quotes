@@ -39,5 +39,3 @@
 > "If you want to go fast, go alone. If you want to go far, go with others." ― African Proverb
 
 > "Creativity is not a talent. It is a way of operating." ― John Cleese
-
-> "I shall not today attempt further to define the kinds of material I understand to be embraced within that shorthand description; and perhaps I could never succeed in intelligibly doing so. But I know it when I see it..." ― Potter Stewart
